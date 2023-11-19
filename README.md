@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @budapestaiko
+- 👋 Hi, I’m @medeva
 - 👀 I’m interested in design
 - 🌱 I’m currently learning anything
 - 💞️ I’m looking to collaborate on everything
